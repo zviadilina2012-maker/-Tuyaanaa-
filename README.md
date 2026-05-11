@@ -5,9 +5,9 @@ All About me! ^^
 
 dni: darkshippers, pedos, z00s, over 20+, has "dark" humor.
 
-likes: people in the same fandom as me such as. phighting, hetaila, Gnb, regretavator, etc!, nice peeps, c+h, when people come up to me, notice my cosplays!
+likes: people in the same fandom as me such as Hetaila, Gnb, regretavator, etc!, nice peeps, c+h, when people come up to me, notice my cosplays!
 
-Fav characters: Sword(Phighting), Matthew willams  (hetaila), Barry (Gnb), Avery (from that one arg) Infected (regretavator)
+Fav characters:  Matthew willams  (hetaila), Barry (Gnb), Avery (from that one arg) Infected (regretavator)
 
 BE AWARE/RULES
 .Im a minor
