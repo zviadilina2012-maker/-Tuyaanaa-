@@ -3,7 +3,7 @@ All About me! ^^
 
 
 
-dni: darkshippers, pedos, z00s, over 20+, has "dark" humor.
+dni: darkshippers,, , over 20+, has Epstein humor.
 
 likes: people in the same fandom as me such as Hetaila, Gnb, regretavator, etc!, nice peeps, c+h, when people come up to me, notice my cosplays!
 
